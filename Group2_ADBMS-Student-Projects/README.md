@@ -1,1 +1,0 @@
-# ADBMS-Student-Projects
